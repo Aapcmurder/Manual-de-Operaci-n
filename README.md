@@ -1,1 +1,1 @@
-# Manual-de-Operaci-n
+# Manual-de-Operacion
